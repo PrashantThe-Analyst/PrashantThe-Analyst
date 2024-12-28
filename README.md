@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data analysis, storytelling through visuals, and uncovering hidden insights.
 - 🌱 I’m currently learning Advanced analytics, machine learning, and the art of predictive modeling.
 - 💞️ I’m looking to collaborate on Data-driven projects, automation, and impactful dashboards that make decisions smarter.
-- 📫 How to reach me [linkedin.com/in/prashant-solanki-1854ba338] – Let’s connect and create something amazing!
+- 📫 How to reach me [linkedin.com/in/prashant-solanki-1854ba338] – [prashantsagarvanshi5@gmail.com]Let’s connect and create something amazing!
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I find patterns in data just as exciting as others find plot twists in movies!
 
